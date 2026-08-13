@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Who am I?
 Founder of Quantalinker,
 Cybersecurity & Computer Engineering student.
 
